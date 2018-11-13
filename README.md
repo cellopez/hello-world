@@ -9,7 +9,7 @@
 * sleeping
 * **being cozy**
 * ~~stress~~
-* follow me http://github.com - automatic!
-[GitHub](https://www.instagram.com/cello7231/?hl=en)
+* follow me!
+[Instagram](https://www.instagram.com/cello7231/?hl=en)
 
 
